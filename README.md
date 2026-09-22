@@ -1,1 +1,1 @@
-# -tica-no-uso-das-Ia-nas-Universidades
+# -ética-no-uso-das-Ia-nas-Universidades
